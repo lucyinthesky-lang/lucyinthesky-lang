@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lucyinthesky-lang
-- 👀 I’m interested in Art, Ilustration, Code, scrum, React, javascript, Html, Css
+- 👀 I’m interested in Design, art, Ilustration, Code, scrum, React, javascript, Html, Css
 - 🌱 I’m currently learning Develop of Web sistems
 - 💞️ I’m looking to collaborate on work team that like to design something that helps everyone in the world
 - 📫 How to reach me ...
