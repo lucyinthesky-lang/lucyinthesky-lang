@@ -2,7 +2,7 @@
 - 👀 I’m interested in Design, art, Ilustration, Code, scrum, React, javascript, Html, Css
 - 🌱 I’m currently learning Develop of Web sistems
 - 💞️ I’m looking to collaborate on work team that like to design something that helps everyone in the world
-- 📫 How to reach me ...
+- 📫 How to reach me 33 1117 3247
 - 😄 Pronouns: Ana Lucia
 - ⚡ Fun fact: My joke name is The Uyuyuy
 
